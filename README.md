@@ -237,7 +237,7 @@
       I've been thinking about what happened and I really want to say this properly. I am truly sorry for the word I used. I know it hurt you and that honestly makes me feel really bad. You are someone very special to me, my sweet rasmalai 🍮, and the last person in the world I would ever want to disrespect or make feel bad.
     </p>
     <p class="para" id="p1">
-      The truth is that when that guruveer name came up, I reacted suddenly because you know how much I dislike that person. In that moment I didn't think before speaking and the word came out in the wrong way. It was never meant for you, not even for a second. But I understand that even if it was a mistake, hearing that word from me must have hurt you, and for that I am really sorry.
+      The truth is that when that guruveer name came up, I reacted suddenly because you know how much I dislike that person. In that moment I didn't think before speaking and the word came out in the wrong way. It was never meant for you, but for the guruverr. But I understand that even if it was a mistake, hearing that word from me must have hurt you, and for that I am really sorry.
     </p>
     <p class="para" id="p2">
       You mean a lot to me, and I respect you more than you think. I hate that my careless reaction made you feel upset or disrespected. If I could take that moment back, I absolutely would. I promise you that I will be more careful with my words because you deserve kindness, respect, and love from me, not hurt.
